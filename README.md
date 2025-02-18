@@ -1,6 +1,6 @@
 👋🏻👦🏻 Hi, I’m @andreuterwl.  
 
-Currently doing my doctoral studies at the Universitat de València, where I have a university teacher training contract (FPU) for the development of my PhD thesis.
+I am currently pursuing my doctoral studies at the Universitat de València under a university teacher training contract (FPU), conducting research for my PhD thesis.
 
 📫 You may also contact me at:
 - andreu.teruel@uv.es (mail)
